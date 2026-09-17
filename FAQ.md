@@ -15,3 +15,9 @@ Scroll down th the section called "Passions" and tell potential mates and friend
 
 When you're done, click "Save Cahnages" to show the world.
 
+# Photos are nice and all, but I don't see very well. How can I smell the other dogs?
+
+We regret that we are unable to offer our suctomers smell-o-version at this tiem.
+As soon as human technology catches up to dog noses, we'll be sure to add a scent feature to the app.
+In the meantime, whey not meet up at the dog park to get a whiff of your new friend?
+
